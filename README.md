@@ -11,3 +11,4 @@ Cainan make a commit man
 
 Nolan Made a better change
 
+guys stop commiting mid merge (⌐⊙_⊙)
