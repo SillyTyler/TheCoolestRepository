@@ -11,4 +11,7 @@ Cainan make a commit man
 
 Nolan Made a better change
 
+guys stop commiting mid merge (⌐⊙_⊙)
+
+cainan is a baby
 HEY GUYS IM STILL HERE (GIGI)
